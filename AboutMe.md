@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Mr. Petrizzo
-- 👀 I’m interested in collaborating with mind greater than myself for purposes greater than myself.
+- 👀 I’m interested in collaborating with minds greater than my own for purposes greater than myself.
 - 🌱 I’m currently learning accounting and business management.
 - 💞️ I’m looking to collaborate on phone apps, websites, helping others shift their paradigm. 
 - 📫 How to reach me is MrPetrizzo@gmail.com
